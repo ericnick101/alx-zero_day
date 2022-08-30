@@ -1,1 +1,2 @@
 JESUS
+IS LORD
